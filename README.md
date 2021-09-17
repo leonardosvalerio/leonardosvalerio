@@ -1,4 +1,4 @@
-Sou apaixonado e levo como meu propósito desenvolver serviços que impactam positivamente a vida das pessoas em escala global com a Inteligência Artificial utilizando o de mais moderno no campo
+Sou apaixonado e levo como meu propósito desenvolver serviços que impactam positivamente a vida das pessoas em escala global com a Inteligência Artificial utilizando o de mais moderno no campo.
 
 
 - 👋 Olá, Eu sou @leonardosvalerio
